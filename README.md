@@ -20,6 +20,6 @@
 结语  
 选择一个可靠的在线视频平台观看日本AV资源，能够确保观众享受高清、无广告、流畅的观影体验，同时还能够保护个人隐私和数据安全。这样的平台将为用户提供一个放心、舒适的观影环境。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/error40466/yaaa01 )</span>
 
 
